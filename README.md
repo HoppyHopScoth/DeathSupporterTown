@@ -8,6 +8,65 @@ ${\textsf{\color{blue}- He is mean and does not want to forgive people who have 
 # ${\textsf{\color{white}ᴘʟᴇᴀsᴇ ʀᴇᴀᴅ ᴛʜᴇ ʀᴜʟᴇs ᴄᴀʀᴇғᴜʟʟʏ ʙᴇғᴏʀᴇ ᴇɴᴛᴇʀɪɴɢ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ.}}$
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ${\textsf{\color{white}ʀᴜʟᴇs ʙᴇғᴏʀᴇ ᴇɴᴛᴇʀɪɴɢ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ.}}$
 
 ${\textsf{\color{white}𝟷. ᴅᴏ ɴᴏᴛ ɴᴏᴍɪɴᴀᴛᴇ sᴏᴍᴇᴏɴᴇ ᴏɴ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ.}}$
